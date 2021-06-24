@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NabrajChy1412
+- 👋 Hi, I’m Nabraj Chaudhary
 - 👀 I’m interested in Web Designing, Gaming and Food Tour
 - 🌱 I’m currently learning BSC.IT
 - 💞️ I’m looking to collaborate on Web Development and Designing
